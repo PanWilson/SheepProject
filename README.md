@@ -1,3 +1,2 @@
 # SheepProject
-![](tmp/2019-06-29_00-06-02.webm)
-![](https://gfycat.com/oilyskeletalasiaticlesserfreshwaterclam)
+![](https://media.giphy.com/media/JpYs0526VOttBhQb62/giphy.gif)
